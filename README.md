@@ -1,5 +1,3 @@
-### Hi there 👋
-### Hola 👋, Myilena
 #### Analista Desarrollo De Sistema De Información
 ![Analista Desarrollo De Sistema De Información](https://static.vecteezy.com/system/resources/previews/000/523/378/non_2x/web-development-application-design-coding-and-programming-on-laptop-and-smartphone-concept-with-programming-language-and-program-code-and-layout-on-screen-vector.jpg)
 
